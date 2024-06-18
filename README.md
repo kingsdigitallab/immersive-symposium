@@ -50,4 +50,12 @@ avoid confusion between in-game dialogue and the people's voices in the space ar
 
 When you enter the space take a moment to look around - we have left some objects around
 to interact with. There are crossbows, glitter guns, random decorative objects, and white boards
-which you are able to draw on.
+which you are able to draw on. Try doodling!
+
+The reason for congregating in this virtual space is to test and reflect on the dynamics of personal interaction across different devices. To provide a focus for this short session, we will organise a hide and seek game. How easy or hard is it to keep track of your fellow participants?
+
+
+
+
+
+
